@@ -5,7 +5,7 @@ I like marine biology and obtained a degree from OSU where I have
 some experience in conducting research on marine life and the environment.
 I like animals and I have personally worked with widlife before at a 
 animal rehabilitation center.
-
+I am a console gamer and I have a PS4, PS3, PS Vita, PS2, PS1, and 3DS.
 
 Programming Background
 When I began the CS program I was new to programming. The project that I enjoyed
