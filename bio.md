@@ -5,7 +5,7 @@ I like marine biology and obtained a degree from OSU where I have
 some experience in conducting research on marine life and the environment.
 I like animals and I have personally worked with widlife before at a 
 animal rehabilitation center.
-
+I prefer Android over iOS and I also have a Moto 360 smart watch!
 
 Programming Background
 When I began the CS program I was new to programming. The project that I enjoyed
